@@ -2,7 +2,7 @@
 
 # 日本共産党 議員・役員 5月イベントスケジュール
 
-| 日時 | 氏名（Xアカウント） | 場所 | 地図 |
+| 日時 | 会える議員（Xアカウント） | 場所 | 地図 |
 | :--- | :--- | :--- | :--- |
 | 5月10日（日） 13:30 - | **たつみ孝太郎** ([@kotarotatsumi](https://twitter.com/kotarotatsumi)) | 滋賀県草津市 キラリエ草津 | [Map](https://www.google.com/maps/search/?api=1&query=滋賀県草津市+キラリエ草津) |
 | 5月10日（日） 14:00 - | **大門みきし** ([@mikishidaimon](https://twitter.com/mikishidaimon)) | 奈良県大和郡山市 市民交流館 | [Map](https://www.google.com/maps/search/?api=1&query=奈良県大和郡山市+市民交流館) |
