@@ -1,9 +1,6 @@
 [共産党5月の集会スケジュール.md](https://github.com/user-attachments/files/27166856/5.md)
 ### 5月 演説・イベントスケジュール
 
-以下のコードをコピーして、WordPressの「カスタムHTML」ブロックに貼り付けてください。
-
-```html
 <div class="jcp-schedule-container">
     <style>
         .jcp-schedule-container {
