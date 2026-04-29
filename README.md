@@ -1,6 +1,6 @@
 [event_schedule_v3.md](https://github.com/user-attachments/files/27171706/event_schedule_v3.md)
 
-# 日本共産党 議員・役員 5月イベントスケジュール
+# 日本共産党 議員・役員 5-6月イベントスケジュール
 
 | 日時 | 会える人（Xアカウント） | 場所 | 地図 |
 | :--- | :--- | :--- | :--- |
@@ -14,3 +14,5 @@
 | 5月23日（土） 14:00 - | **藤野やすふみ** ([@FujinoFujinooo](https://twitter.com/FujinoFujinooo)) | 新潟県長岡市 長岡市立劇場 | [Map](https://www.google.com/maps/search/?api=1&query=新潟県長岡市+長岡市立劇場) |
 | 5月26日（火） 18:00 - | **小池晃** ([@koike_akira](https://twitter.com/koike_akira)) | 神奈川県横須賀市 ヨコスカ・ベイサイド・ポケット | [Map](https://www.google.com/maps/search/?api=1&query=神奈川県横須賀市+ヨコスカ・ベイサイド・ポケット) |
 | 5月31日（日） 14:00 - 16:00 | **清水ただし** ([@tadashishimizu](https://twitter.com/tadashishimizu)) | 東京都葛飾区 南綾瀬地区センター | [Map](https://www.google.com/maps/search/?api=1&query=東京都葛飾区+南綾瀬地区センター) |
+| 6月6日（土） 14:00 - | **小池晃** ([@koike_akira](https://twitter.com/koike_akira)) | 静岡県浜松市　アクトシティー| [Map](https://www.google.com/maps/search/?api=1&query=静岡県浜松市　アクトシティー) |
+
