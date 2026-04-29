@@ -4,6 +4,7 @@
 
 | 日時 | 会える人（Xアカウント） | 場所 | 地図 |
 | :--- | :--- | :--- | :--- |
+| 5月3日（日） 13:00 - | **山添拓** ([@pioneertaku84](https://twitter.com/pioneertaku84)) | 茨城県水戸市　憲法フェスティバル、ハナミズキ広場 | [Map](https://www.google.com/maps/search/?api=1&query=茨城県水戸市+ハナミズキ広場) |
 | 5月10日（日） 13:30 - | **たつみ孝太郎** ([@kotarotatsumi](https://twitter.com/kotarotatsumi)) | 滋賀県草津市 キラリエ草津 | [Map](https://www.google.com/maps/search/?api=1&query=滋賀県草津市+キラリエ草津) |
 | 5月10日（日） 14:00 - | **大門みきし** ([@mikishidaimon](https://twitter.com/mikishidaimon)) | 奈良県大和郡山市 市民交流館 | [Map](https://www.google.com/maps/search/?api=1&query=奈良県大和郡山市+市民交流館) |
 | 5月16日（土） 13:30 - 15:00 | **清水ただし** ([@tadashishimizu](https://twitter.com/tadashishimizu)) | 三重県鈴鹿市 イスのサンケイホール | [Map](https://www.google.com/maps/search/?api=1&query=三重県鈴鹿市+イスのサンケイホール) |
