@@ -1,5 +1,7 @@
 [event_schedule_v3.md](https://github.com/user-attachments/files/27171706/event_schedule_v3.md)
 
+<img width="792" height="188" alt="image" src="https://github.com/user-attachments/assets/0f863f21-7719-46ad-9e4c-6c7c04941821" />
+
 # 日本共産党 議員・役員 5-6月イベントスケジュール
 
 | 日時 | 会える人（Xアカウント） | 場所 | 地図 |
