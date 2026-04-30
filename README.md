@@ -1,6 +1,6 @@
 [event_schedule_v3.md](https://github.com/user-attachments/files/27171706/event_schedule_v3.md)
 
-<img width="792" height="188" alt="image" src="https://github.com/user-attachments/assets/0f863f21-7719-46ad-9e4c-6c7c04941821" />
+<img width="792" height="188" alt="image" src="https://github.com/user-attachments/assets/0f863f21-7719-46ad-9e4c-6c7c04941821" /> <br>
 フォローしてね！↓↓↓ <br>
 日本共産党YouTubeチャンネル：https://www.youtube.com/@jcpmovie <br>
 田村智子チャンネル（タムトモ：日本共産党委員長）：https://www.youtube.com/@tamuratomoko <br>
