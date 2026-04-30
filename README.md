@@ -4,7 +4,7 @@
 フォローしてね！↓↓↓ <br>
 **日本共産党YouTubeチャンネル：**[https://www.youtube.com/@jcpmovie](https://www.youtube.com/@jcpmovie) <br>
 **田村智子チャンネル（タムトモ：日本共産党委員長）：**[https://www.youtube.com/@tamuratomoko](https://www.youtube.com/@tamuratomoko) <br>
-
+管理人：**ゆうま＠改憲反対！憲法まもれ！：**[@YumaSaeki2](https://twitter.com/YumaSaeki2) ←イベント情報、不都合等ございましたらご連絡ください。<br>
 # 日本共産党 議員・役員 5-6月イベントスケジュール
 
 | 日時 | 会える人（Xアカウント） | 場所 | 地図 |
