@@ -5,7 +5,7 @@
 # 日本共産党 議員・役員 5-6月イベントスケジュール
 フォローしてね！↓↓↓ <br>
 日本共産党YouTubeチャンネル：https://www.youtube.com/@jcpmovie <br>
-田村智子チャンネル（タムトモ：日本共産党委員長）：https://www.youtube.com/@tamuratomoko
+田村智子チャンネル（タムトモ：日本共産党委員長）：https://www.youtube.com/@tamuratomoko <br>
 | 日時 | 会える人（Xアカウント） | 場所 | 地図 |
 | :--- | :--- | :--- | :--- |
 | 5月2日（土） 14:00 - | **清水ただし** ([@tadashishimizu](https://twitter.com/tadashishimizu)) <br>**金森いずみ**([@fountain_wacwac](https://twitter.com/fountain_wacwac))|大阪府箕輪市　箕輪市民会館2F大会議室 | [Map](https://www.google.com/maps/search/?api=1&query=大阪府箕輪市+箕輪市民会館) |
