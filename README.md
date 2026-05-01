@@ -4,7 +4,7 @@
 **【田村智子 公式】たむとも チャンネル（日本共産党委員長）：**[https://www.youtube.com/@tamuratomoko](https://www.youtube.com/@tamuratomoko) <br>
 
 管理人：**ゆうま＠改憲反対！憲法まもれ！：**[@YumaSaeki2](https://twitter.com/YumaSaeki2)<br>
-　　　　**Ema🌾JCP動画班/フォローして✨:**[@emausade](https://twitter.com/emausade) <br>
+　　　　**Ema🌾JCP動画班/フォローして✨：**[@emausade](https://twitter.com/emausade) <br>
 ↑↑↑
 イベント情報、不都合等ございましたらご連絡ください。<br>
 
