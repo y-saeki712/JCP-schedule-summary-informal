@@ -1,4 +1,4 @@
-<img width="794" height="247" alt="image" src="https://github.com/user-attachments/assets/ab18df92-6338-4506-8de4-e1b4df8612bf" />
+<img width="794" height="247" alt="image" src="https://github.com/user-attachments/assets/19b4fc6a-5c1b-4181-957a-4145f745ad85" />
 <br>
 フォローしてね！↓↓↓ <br>
 **日本共産党YouTubeチャンネル：**[https://www.youtube.com/@jcpmovie](https://www.youtube.com/@jcpmovie) <br>
