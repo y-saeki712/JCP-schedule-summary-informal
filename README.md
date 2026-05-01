@@ -1,5 +1,3 @@
-[event_schedule_v3.md](https://github.com/user-attachments/files/27171706/event_schedule_v3.md)
-
 <img width="792" height="188" alt="image" src="https://github.com/user-attachments/assets/0f863f21-7719-46ad-9e4c-6c7c04941821" /> <br>
 フォローしてね！↓↓↓ <br>
 **日本共産党YouTubeチャンネル：**[https://www.youtube.com/@jcpmovie](https://www.youtube.com/@jcpmovie) <br>
@@ -7,7 +5,7 @@
 
 管理人：**ゆうま＠改憲反対！憲法まもれ！：**[@YumaSaeki2](https://twitter.com/YumaSaeki2)<br>
 　　　　**Ema🌾JCP動画班/フォローして**✨[@emausade](https://twitter.com/emausade) <br>
-↑↑↑↑
+↑↑↑
 イベント情報、不都合等ございましたらご連絡ください。<br>
 
 # 日本共産党 議員・役員 5-6月イベントスケジュール
