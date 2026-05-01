@@ -1,4 +1,5 @@
-<img width="792" height="188" alt="image" src="https://github.com/user-attachments/assets/0f863f21-7719-46ad-9e4c-6c7c04941821" /> <br>
+<img width="794" height="247" alt="image" src="https://github.com/user-attachments/assets/ab18df92-6338-4506-8de4-e1b4df8612bf" />
+<br>
 フォローしてね！↓↓↓ <br>
 **日本共産党YouTubeチャンネル：**[https://www.youtube.com/@jcpmovie](https://www.youtube.com/@jcpmovie) <br>
 **【田村智子 公式】たむとも チャンネル（日本共産党委員長）：**[https://www.youtube.com/@tamuratomoko](https://www.youtube.com/@tamuratomoko) <br>
