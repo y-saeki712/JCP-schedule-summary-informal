@@ -29,6 +29,7 @@
 | 5月30日（土） 14:00 - | **たつみ孝太郎** ([@kotarotatsumi](https://twitter.com/kotarotatsumi)) | 兵庫県加古川市 加古川総合文化センター | [Map](https://www.google.com/maps/search/?api=1&query=兵庫県加古川市+加古川総合文化センター) |
 | 5月31日（日） 14:00 - 16:00 | **清水ただし** ([@tadashishimizu](https://twitter.com/tadashishimizu)) | 東京都葛飾区 南綾瀬地区センター | [Map](https://www.google.com/maps/search/?api=1&query=東京都葛飾区+南綾瀬地区センター) |
 | 6月6日（土） 14:00 - | **小池晃** ([@koike_akira](https://twitter.com/koike_akira)) | 静岡県浜松市 アクトシティ | [Map](https://www.google.com/maps/search/?api=1&query=静岡県浜松市+アクトシティ) |
+
 <br>
 注：以下を考慮して掲示しています。<br>
 ・公知情報である。<br>
