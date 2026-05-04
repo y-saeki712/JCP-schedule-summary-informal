@@ -28,6 +28,7 @@
 | 5月26日（火） 18:00 - | **小池晃** ([@koike_akira](https://twitter.com/koike_akira)) | 神奈川県横須賀市 ヨコスカ・ベイサイド・ポケット | [Map](https://www.google.com/maps/search/?api=1&query=神奈川県横須賀市+ヨコスカ・ベイサイド・ポケット) |
 | 5月30日（土） 14:00 - | **たつみ孝太郎** ([@kotarotatsumi](https://twitter.com/kotarotatsumi)) | 兵庫県加古川市 加古川総合文化センター | [Map](https://www.google.com/maps/search/?api=1&query=兵庫県加古川市+加古川総合文化センター) |
 | 5月31日（日） 14:00 - 16:00 | **清水ただし** ([@tadashishimizu](https://twitter.com/tadashishimizu)) | 東京都葛飾区 南綾瀬地区センター | [Map](https://www.google.com/maps/search/?api=1&query=東京都葛飾区+南綾瀬地区センター) |
+| 5月31日（日） 13:00 - 16:00 | **本村伸子** ([@motomura_nobuko](https://twitter.com/motomura_nobuko)) | もとむら伸子さんと！でっかフラッグを作ろう！日本共産党西河内地区委員会　岡崎市広幡町1-1 | [Map](https://www.google.com/maps/search/?api=1&query=岡崎市広幡町1-1) |
 | 6月6日（土） 14:00 - | **小池晃** ([@koike_akira](https://twitter.com/koike_akira)) | 静岡県浜松市 アクトシティ | [Map](https://www.google.com/maps/search/?api=1&query=静岡県浜松市+アクトシティ) |
 
 <br>
