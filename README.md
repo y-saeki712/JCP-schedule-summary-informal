@@ -1,11 +1,11 @@
 <img width="794" height="247" alt="image" src="https://github.com/user-attachments/assets/19b4fc6a-5c1b-4181-957a-4145f745ad85" />
 <br>
 フォローしてね！↓↓↓ <br>
-**日本共産党YouTubeチャンネル：**[https://www.youtube.com/@jcpmovie](https://www.youtube.com/@jcpmovie) <br>
-**【田村智子 公式】たむとも チャンネル（日本共産党委員長）：**[https://www.youtube.com/@tamuratomoko](https://www.youtube.com/@tamuratomoko) <br>
+**日本共産党YouTubeチャンネル：**([https://www.youtube.com/@jcpmovie](https://www.youtube.com/@jcpmovie)) <br>
+**【田村智子 公式】たむとも チャンネル（日本共産党委員長）：**([https://www.youtube.com/@tamuratomoko](https://www.youtube.com/@tamuratomoko)) <br>
 
-管理人：**ゆうま＠改憲反対！憲法まもれ！：**[@YumaSaeki2](https://twitter.com/YumaSaeki2)<br>
-　　　　**Ema🌾JCP動画班/フォローして✨：**[@emausade](https://twitter.com/emausade) <br>
+管理人：**ゆうま＠改憲反対！憲法まもれ！：**([@YumaSaeki2](https://twitter.com/YumaSaeki2))<br>
+　　　　**Ema🌾JCP動画班/フォローして✨：**([@emausade](https://twitter.com/emausade)) <br>
 ↑↑↑
 イベント情報、不都合等ございましたらご連絡ください。<br>
 
